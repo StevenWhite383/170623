@@ -1,3 +1,5 @@
 # 170623
+please ignore
 
-https://stevenwhite383.github.io/170623/
+This is just for an ARG and, as such, the spelling mistakes are intentional.
+This is not reflective of my professional work.
